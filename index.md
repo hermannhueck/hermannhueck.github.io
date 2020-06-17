@@ -34,3 +34,5 @@ Denn man liegt nicht gerne kühle.
 > fängt er auch schon an zu krähen:
 > Kikeriki, kikikerikih!!
 > Tak, tak, tak, da kommen sie!
+
+<img src ="https://i2.wp.com/www.wilhelm-busch.de/wp-content/uploads/2015/11/S1B1.jpg?fit=1032%2C874&ssl=1">
