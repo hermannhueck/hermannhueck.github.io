@@ -17,3 +17,20 @@ Denn man liegt nicht gerne kühle.
 * liebt Hühner wg. der Verwendung als Braten
 * liebt Hühner wg. der wärmenden Federn
 * ist sauer auf Max und Moritz
+
+> Ihrer Hühner waren drei
+> Und ein stolzer Hahn dabei.
+> Max und Moritz dachten nun:
+> Was ist hier jetzt wohl zu tun?
+> Ganz geschwinde, eins, zwei, drei,
+> Schneiden sie sich Brot entzwei,
+> In vier Teile, jedes Stück
+> Wie ein kleiner Finger dick.
+> Diese binden sie an Fäden,
+> Übers Kreuz, ein Stück an jeden,
+> Und verlegen sie genau
+> In den Hof der guten Frau.
+> Kaum hat dies der Hahn gesehen,
+> fängt er auch schon an zu krähen:
+> Kikeriki, kikikerikih!!
+> Tak, tak, tak, da kommen sie!
